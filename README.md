@@ -1,0 +1,2 @@
+# premium-pipe-gl-001-functional-glass-art-wig-wag-p
+Tired of losing track of your wig wag pattern variations and color combos? Your most intricate functional glass pieces deserve a system that captures every detail—without the clutter.  This Notion template is the only structured database built specifically for functional glass artists who create wig wag patterns. It organizes your designs, material
